@@ -8,7 +8,7 @@
 
 0000112392517sp@aluno.educacao.sp.gov.br
 
-@nati_gob.silva
+@nati_gab.silva
 
 
 
